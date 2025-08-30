@@ -10,9 +10,8 @@ racists
 insensitive people
 misogynysts
 neurodivigent people
-(I'm not ableist, just dni)
+(I had bad experiences w y'all)
 if you have any addictions
-if u do sh/are s-uicida-l
 (hope u get better, but dni :/)
 
 XXXXXXXXXXXXXXXXXXXXXXXXXX
@@ -37,11 +36,7 @@ elimination, project: rusher....
 or if you are in those fandoms 
 ,, absolutely interact! ,,
 
--- pony town --
-note #1: if I ever leave randomly, 
-it's either bc of my internet
-or my battery died  ≧⁠ ^ ≦
-note #2: use tonetags/indicators
+note: use tonetags/indicators
 since it's most likely
 I interpret what you said
 the wrong way ꏿ⁠﹏⁠ꏿ
