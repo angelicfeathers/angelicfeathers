@@ -1,6 +1,6 @@
 <p align="center">✲༺ hello! ༻✲</p>
  
-<p align="center[image alt]>(https://github.com/angelicfeathers/angelicfeathers/blob/507365e88b71ca990f0b2331a04a330550cb190e/82887a2f46069a15ae486534c89519da.jpg)</p>
+<p align="center[image alt](https://github.com/angelicfeathers/angelicfeathers/blob/507365e88b71ca990f0b2331a04a330550cb190e/82887a2f46069a15ae486534c89519da.jpg)</p>
 
 <p align="center">dni:
 nazis
