@@ -1,4 +1,54 @@
-## Hi there 👋
+   ✲༺ hello! ༻✲
+ 
+dni:
+nazis
+if u make jokes abt
+9/11, holocaust, etc.
+pro/darkshippers
+homo/transphobes
+racists
+insensitive people
+misogynysts
+neurodivigent people
+(I'm not ableist, just dni)
+if you have any addictions
+if u do sh/are s-uicida-l
+(hope u get better, but dni :/)
+
+XXXXXXXXXXXXXXXXXXXXXXXXXX
+    guess that's all!
+════════༺❀༻════════
+
+XXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXX
+ ✲ other than that that, int! ✲
+XXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXX
+ 
+if you know : nso, md, pmmm
+hb + hh, tadc, bs, crk, dw
+lacey's games, fnaf, touhou
+princess tale (project_RA)
+horse paradise, wildcraft
+( + roblox games) ↓
+sewh, ftf, the field of ayuwoki
+mosquitoes vs hunters, crown tag
+Creatures of Sonaria, bite-sized
+elimination, project: rusher....
++ more random things
+or if you are in those fandoms 
+,, absolutely interact! ,,
+
+-- pony town --
+note #1: if I ever leave randomly, 
+it's either bc of my internet
+or my battery died  ≧⁠ ^ ≦
+note #2: use tonetags/indicators
+since it's most likely
+I interpret what you said
+the wrong way ꏿ⁠﹏⁠ꏿ
+
+// I think that's all :3 //
+
+♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪
 
 <!--
 **angelicfeathers/angelicfeathers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
