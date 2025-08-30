@@ -1,4 +1,4 @@
-   ✲༺ hello! ༻✲
+<align="center">✲༺ hello! ༻✲
  
 dni:
 nazis
@@ -44,6 +44,7 @@ the wrong way ꏿ⁠﹏⁠ꏿ
 // I think that's all :3 //
 
 ♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪
+
 
 <!--
 **angelicfeathers/angelicfeathers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
