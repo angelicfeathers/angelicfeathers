@@ -1,8 +1,8 @@
-<p align="center">✲༺ hello! ༻✲
+<p align="center">✲༺ hello! ༻✲</p>
  
-![image alt](https://github.com/angelicfeathers/angelicfeathers/blob/5f9aebc7be1f959d30b3fd8a8839aae224696587/174f6d643f1ab2ae8ec875b486ad43dd%20(1).jpg)
- 
-dni:
+<p align="center">![image alt](https://github.com/angelicfeathers/angelicfeathers/blob/eba7d175f6c45dbe94ac35369f9d2d42923f6745/affe86768e0d6f4341a069916de362e3.jpg)</p>
+
+<p align="center">dni:
 nazis
 if u make jokes abt
 9/11, holocaust, etc.
@@ -45,5 +45,4 @@ the wrong way ꏿ⁠﹏⁠ꏿ
 
 // I think that's all :3 //
 
-♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪
-</p>
+♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪</p>
