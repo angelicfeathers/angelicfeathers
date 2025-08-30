@@ -1,6 +1,6 @@
 <p align="center">✲༺ hello! ༻✲</p>
  
-<p![image alt](https://github.com/angelicfeathers/angelicfeathers/blob/507365e88b71ca990f0b2331a04a330550cb190e/82887a2f46069a15ae486534c89519da.jpg)</p>
+![image alt](https://github.com/angelicfeathers/angelicfeathers/blob/507365e88b71ca990f0b2331a04a330550cb190e/82887a2f46069a15ae486534c89519da.jpg)
 
 <p align="center">dni:
 nazis
@@ -15,6 +15,7 @@ neurodivigent people
 (I had bad experiences w y'all)
 if you have any addictions
 (hope u get better, but dni :/)
+</p>
 
 XXXXXXXXXXXXXXXXXXXXXXXXXX
     guess that's all!
@@ -45,4 +46,4 @@ the wrong way ꏿ⁠﹏⁠ꏿ
 
 // I think that's all :3 //
 
-♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪</p>
+♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪
