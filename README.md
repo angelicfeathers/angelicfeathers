@@ -1,4 +1,5 @@
-<align="center">✲༺ hello! ༻✲
+<p align="center">
+ ✲༺ hello! ༻✲
  
 dni:
 nazis
@@ -44,6 +45,7 @@ the wrong way ꏿ⁠﹏⁠ꏿ
 // I think that's all :3 //
 
 ♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪
+</p>
 
 
 <!--
