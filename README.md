@@ -1,6 +1,6 @@
 <p align="center">✲༺ hello! ༻✲
  
-![image alt](
+![image alt](https://github.com/angelicfeathers/angelicfeathers/blob/5f9aebc7be1f959d30b3fd8a8839aae224696587/174f6d643f1ab2ae8ec875b486ad43dd%20(1).jpg
  
 dni:
 nazis
@@ -47,19 +47,3 @@ the wrong way ꏿ⁠﹏⁠ꏿ
 
 ♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪
 </p>
-
-
-<!--
-**angelicfeathers/angelicfeathers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
